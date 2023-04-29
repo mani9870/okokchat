@@ -1,7 +1,7 @@
 Hi, thank you for buying my script, I'm very grateful!
 
-If you need help contact me on discord: okok#3488
-Discord server: https://discord.gg/FauTgGRUku
+If you need help contact me on discord: Mayank#0001
+Discord server: https://discord.gg/finalstrikeroleplay
 
 1. Disable the chat resource you're using at the moment
 
